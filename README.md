@@ -1,2 +1,1 @@
-![Tumblr_l_7533002188294](https://github.com/user-attachments/assets/fdfbf6b9-aae7-4d12-98e9-bbef21be064c)
-
+![120 sin título_20250305201302](https://github.com/user-attachments/assets/dc9b3cf4-2f16-440a-8ac4-f0410fa7d7b6)

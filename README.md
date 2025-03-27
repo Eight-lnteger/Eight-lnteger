@@ -2,6 +2,4 @@ me when im two integer sitting on a wood plank next to my best friend eight inte
 
 ![jacknjellify-bfb](https://github.com/user-attachments/assets/f9889104-9af4-4953-b99c-885e06f251c9)
 
-ahh yes...platonic love...........paltonic
-
-![Captura de pantalla 2025-03-22 183811](https://github.com/user-attachments/assets/c821687e-2f2d-4dca-83c9-0efadd03f7cb)
+![tumblr_356989e613c362de5d9a9765af57c30a_10ece557_1280](https://github.com/user-attachments/assets/7334d712-80c1-468b-8dc3-80c41e09a23e)
